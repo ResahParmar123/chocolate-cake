@@ -1,0 +1,1 @@
+1 ½ cups flour (185 g) 1 cup dutch processed cocoa powder (120 g) 1 teaspoon salt 1 ½ teaspoons baking soda ½ teaspoon baking powder 1 ½ cups stout (360 mL) 1 tablespoon vanilla extract 1 tablespoon espresso powder 1 cup butter (235 g) 1 ½ cups sugar (300 g) 3 eggs ½ cup mayonnaise (120 g) 4 oz dark chocolate (115 g), chopped
